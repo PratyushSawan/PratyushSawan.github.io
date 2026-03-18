@@ -1,6 +1,7 @@
-# 🌐 My Personal Space
+# 🌐 This Space is Under Construction
 
-Welcome to my digital space 🚀
-This is my personal GitHub Pages website where I showcase who I am, what I do, and how you can connect with me.
+A new digital space is being crafted.
 
-🔗 Coming Soon, something Great: https://hlww.me
+Soon, you'll be able to explore a new world, a new work, and a new identity — all in one place.
+
+Stay connected ✨
